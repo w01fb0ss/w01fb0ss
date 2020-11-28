@@ -1,9 +1,9 @@
 ###  👤 About Me ⚡
 
-😈 HACK THE WORLD - TO DO IT.
+😈
 
 - 🥸 Name: [w01fb0ss]
-- 💖 Favorite: [Hacker, Code, Music]
+- 💖 Favorite: [Code, Music]
 
 
 ### 🔱 Top Languages
