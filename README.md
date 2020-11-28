@@ -1,6 +1,4 @@
-###  👤 About Me ⚡
-
-😈
+###  👤 About Me 😈
 
 - 🥸 Name: [w01fb0ss]
 - 💖 Favorite: [Code, Music]
